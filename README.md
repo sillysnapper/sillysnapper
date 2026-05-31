@@ -27,7 +27,7 @@ work in progress. ( 5.31.26 )
 <br><br><br>
 <img src="https://files.catbox.moe/h6wkn5.png">
 <img src="https://64.media.tumblr.com/2e35573cab27852ef5299f47fc942c66/dafad905b7c8df9c-0b/s400x600/f819a58218acd0bd2d0c2994906890c76074b271.gifv" align="left" style="width: 370px;">
-<p align="center"><sub>pstttt....heres some <a href="https://prettypawn.carrd.co">art links..</a>^_^</sub></p>
+<p align="center"><sub>awwh look at my sons</sub></p>
 <p align="center">
 <img src="https://64.media.tumblr.com/4f785b3080ea1c26a1b090599d33b9b7/d7b6b6a9ce405e87-96/s100x200/74da927cbd5740feb283d1208f73bc7005b6a396.gifv"> <img src="https://64.media.tumblr.com/1862d6226fa3a8abbca25b98f29834a4/d7b6b6a9ce405e87-37/s100x200/437fe9007af2400e4ba17e339a433b9b0f70b56a.webp">
 <img src="https://64.media.tumblr.com/dd6d06cfd7ad4b56ea89248e05b25084/d7b6b6a9ce405e87-f8/s100x200/a68b81b2035deeb62d5c98947b0c579c87c946b6.gifv"</p>
