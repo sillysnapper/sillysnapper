@@ -22,7 +22,7 @@ work in progress. ( 5.31.26 )
 <img src="https://64.media.tumblr.com/215068477bf5ba56827ef230c727a2fe/049848ea400ed1b7-a0/s100x200/f69bc6ce3b3c20e91e314b8de1453a53d5acf58c.gifv"</p>
 <h3 align="center">⏖ MAIN INFO ⏖</h3>
 <p>the name's bat <a href="https://en.pronouns.page/@sailorsturgeon">ou</a> elias, or you can just ask, personally which is what i prefer! suspected adhd, (noted, diagnosed) anxiety &&. mild depression. i'm always a iffish person coming to my regulated emotions, so i naturally do note that everyone interacts with caution! i, bat, uses front/second person talking for pronouns, so do i use 'bat/i/we/us' for terms.</p>
-<p>my main interests are vsmp, white pine, any/all horror media, any visual novels, args, st, zero day, twd, gold finch, hannibal, siren, bones, super natural + much more. </p>
+<p>my main interests are vsmp, white pine, any/all horror media, any visual novels, args, st, zero day, twd, gold finch, hannibal, siren, bones, super natural ++ more. </p>
 <img src="https://files.catbox.moe/zopskn.png">
 <br><br><br>
 <img src="https://files.catbox.moe/h6wkn5.png">
