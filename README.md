@@ -1,5 +1,7 @@
 <img align="right" width="300" src="https://files.catbox.moe/xgt99h.png">
 
+<p align="center">
+
 <img align="left" width="435" src="https://files.catbox.moe/xvm1sc.png">
 
 bat　ou　bug　   asking pref　   transmasc　techkin　malebuckthing
