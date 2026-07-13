@@ -1,3 +1,4 @@
+<img align="right" width="300" src="https://files.catbox.moe/2o8b4a.png">
 
 <img align="left" width="435" src="https://files.catbox.moe/xvm1sc.png">
 
@@ -59,6 +60,9 @@ obsessive　over   hyperfixs　 please　do   digress　 pls
 ›　 fictoromantic　/   sexual　   ∑(°口°๑)
  
 ヾ(๑╹◡╹)ﾉ　[pin](https://www.pinterest.com/bloxxybat/)　rntry　 carrd
+
+<img align="right" width="300" src="https://files.catbox.moe/usfium.png">
+
 
 <br clear="left"/>
 <img align="right" width="100" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/IMG_1014%20(3).png">  <img align="right" width="300" src="https://files.catbox.moe/0vatsw.png">
